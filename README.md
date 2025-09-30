@@ -1,7 +1,7 @@
 
 
 ### 👨‍🎓 About Me  
-I am **Nana Opoku Kuffour**, a multifaceted and detail-oriented professional with a background in **Accounting and Economics**, now channeling my passion into **Data Analytics**. 
+I am **Nana Opoku Kuffour**, a multifaceted and detail-oriented professional with a background in **Accounting and Economics**, now channeling my passion into **Finance & Data Analytics**. 
 
 ---
 
