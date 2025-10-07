@@ -37,6 +37,7 @@ Providing insights for growth and performance 🔑
 
 ---
 ### Connect with Me 📫
-[LinkedIn](https://www.linkedin.com/in/nana-opoku-kuffour/)
+[LinkedIn](https://www.linkedin.com/in/nana-opoku-kuffour/)  
+
 🤝 Open to collaborations and eager to apply data-driven insights to real-world challenges. Feel free to reach out—I’d love to connect!
 
